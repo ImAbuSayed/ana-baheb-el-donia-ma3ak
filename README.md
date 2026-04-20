@@ -18,7 +18,10 @@
 
 ## Excerpt
 
-> [Clean lyric will be pushed here]
+> يا حياتي نور دنيتي معاك
+> شوقي ليك في القلب بيناديك
+> أنا بحب الدنيا معاك
+> حبي بيسري في كل أراضيك
 > ...
 
 📄 **[View Full Lyrics →](./lyrics.txt)**
